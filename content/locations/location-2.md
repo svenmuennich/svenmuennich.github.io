@@ -42,7 +42,7 @@ Wer schonmal mit mir im Urlaub war weiß, dass ich eher nicht ausschlafe. Deshal
 
 P.S.: Als ich zuhause war, hatte ich natürlich Blasen an den Füßen.
 
-![](https://www.dropbox.com/s/op752fzuyfpzsv1/dsc_0031.jpg?dl=1)
+![](https://www.dropbox.com/s/ayn9ub8v8wc742i/DSC_0003.jpg?dl=1)
 *Links neben dem Kirchturm wohne ich*
 
 ![](https://www.dropbox.com/s/j58f62qyi6zxlsp/DSC_0021.jpg?dl=1)
