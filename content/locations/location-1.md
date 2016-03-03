@@ -1,3 +1,3 @@
-### Cool
+### Freitag, 26.02.2016
 
-Some *start* description
+Los geht's! Von Frankfurt geht es über Dubai nach Sydney. Knapp 24 Stunden Reise liegen vor mir.
