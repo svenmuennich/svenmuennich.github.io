@@ -1,3 +1,12 @@
+### Montag, 07.03.2016
+
+Wie angekündigt war ich heute zum ersten Mal surfen. Scheinbar bin ich ein Naturtalent, sodass ich direkt mal die erste Welle gestanden habe. Hat auf jeden Fall super viel Spaß gemacht, war aber auch richtig anstrengend. Gerade wenn man so untrainiert ist wie ich, geht das paddeln doch schon gut in die Arme. Leider habe ich mir auch den ersten, zum Glück nur leichten Sonnenbrand geholt. Wenn man 2 Stunden im Wasser ist, hilft eben auch Lichtschutzfaktor 50+ nicht mehr viel.
+
+![](https://www.dropbox.com/s/s0gznez9gkctje4/88458-IMG_5886.JPG?dl=1)
+*Ich hatte sogar noch Zeit zum Lachen*
+
+Morgen geht es dann nach *Melbourne*, wo ich Tom und Ana treffe. Da ich noch nicht wirklich geplant habe, wohin ich nach den ca. 10 Tagen in *Melbourne* fahre, hatte ich jetzt überlegt eventuell Richtung *Bells Beach* oder *Byron Bay* zu fahren, um noch ein paar mehr Surf-Unterrichtsstunden zu nehmen. Aber das entscheide ich eher spontan.
+
 ### Sonntag, 06.03.2016
 
 Heute bin ich dann endlich über die *Harbour Bridge* gelaufen. Muss man auf jeden Fall gemacht haben, um die besten Fotos vom *Sydney Opera House* zu bekommen. Ansonsten bin ich auf der anderen Seite noch etwas am Ufer rumgelaufen und dann mit der Fähre zurück gefahren. Abschließend hab ich dann noch eine Runde im *Barangaroo* Park gedreht. (Vielleicht erinnert ihr euch noch an *Darling Harbour* und die *International Towers* aus meinem zweiten Eintrag. Statt das gesamte Ufer zu bebauen hat die Stadt beschlossen, die Nordspitze direkt neben der *Harbour Bridge* in einen Park zu verwandeln.)
