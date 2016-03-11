@@ -4,6 +4,8 @@ Heute haben wir die letzten Vorbereitungen für das [*Golden Plains Festival*](h
 
 Ich freue mich auf jeden Fall schon sehr auf morgen. Wetterbericht sieht auch OK aus: Um die 25 Grad, bewölkt, vielleicht ab und zu mal ein Schauer.
 
+Seit ich in Melbourne bin und die ganze Zeit mit Tom, Ana und Tom's Schwester Tara zusammen bin, hab ich doch noch so einiges über Australien und die Kultur hier gelernt. Beispiele sind zum einen, was man bei der Sprache beachten muss ([Video mit Beispielen](https://www.youtube.com/watch?v=yDb_WsAt_Z0)) und zum anderen, wie sich die einfache Landjugend die Zeit vertreibt ([Video in Englisch](https://www.youtube.com/watch?v=UUg-8NWRk98)).
+
 
 ### Donnerstag, 11.03.2016
 
