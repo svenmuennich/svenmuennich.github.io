@@ -20,5 +20,16 @@
 		},
 		"contentPath": "content/locations/location-2-sydney.md",
 		"date": "2016-02-27T11:00:00"
+	},
+	{
+		"id": 3,
+		"name": "Melbourne",
+		"country": "Australien",
+		"coords": {
+			"lat": -37.8007513,
+			"lng": 144.959593
+		},
+		"contentPath": "content/locations/location-3-melbourne.md",
+		"date": "2016-03-08T11:00:00"
 	}
 ]
