@@ -7,7 +7,7 @@
 			"lat": 50.0230151,
 			"lng": 8.530615
 		},
-		"contentPath": "content/locations/location-1.md",
+		"contentPath": "content/locations/location-1-frankfurt.md",
 		"date": "2016-02-26T14:00:00"
 	},
 	{
@@ -18,7 +18,7 @@
 			"lat": -33.8573388,
 			"lng": 151.209599
 		},
-		"contentPath": "content/locations/location-2.md",
+		"contentPath": "content/locations/location-2-sydney.md",
 		"date": "2016-02-27T11:00:00"
 	}
 ]
