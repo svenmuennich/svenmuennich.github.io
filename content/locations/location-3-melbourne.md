@@ -11,7 +11,7 @@ Die letzten Tage musste ich arbeitstechnisch etwas ranklotzen. Tom ist glaube ic
 
 Heute haben wir uns dann aber mal etwas Zeit genommen und sind ins *Healesville Sanctuary* gefahren. Das ist ein Zoo, in dem nur Tiere leben, die in Australien heimisch sind. Viele davon werden dort auch deshalb gehalten, weil sie vor dem Aussterben bedroht sind. Wie ihr den Fotos entnehmen könnt, hab ich alles vom *Koala*, über das *Kangaroo* bis zum *Tasmanischen Teufel* gesehen. War wirklich sehr interessant. Im angeschlossenen "Krankenhaus" konnte man sogar live bei einer Operation an einem *Wombat* zuschauen.
 
-Leider haben sich aber die *Schabeltiere* so gut versteckt, dass wir sie nicht entdecken konnten. Das wäre noch ein Highlight gewesehn. Immerhin ist es ein Eier-legendes Säugetier mit Schnabel und gifitgem Stachel. Dafür konnten wir (durch Panzerglas) die 5 giftigstens Schlangen Australiens bewundern. Die giftigste Schlange Australiens, der *Inlandtaipan*, ist auch gleichzeitig die giftigste Schlange auf der Erde. Ich lasse das Zitat aus Wikipedia einfach mal unkommentiert:
+Leider haben sich aber die *Schabeltiere* so gut versteckt, dass wir sie nicht entdecken konnten. Das wäre noch ein Highlight gewesen. Immerhin ist es ein Eier-legendes Säugetier mit Schnabel und gifitgem Stachel. Dafür konnten wir (durch Panzerglas) die 5 giftigstens Schlangen Australiens bewundern. Die giftigste Schlange Australiens, der *Inlandtaipan*, ist auch gleichzeitig die giftigste Schlange auf der Erde. Ich lasse das Zitat aus Wikipedia einfach mal unkommentiert:
 
 > Die bei einem Biss durchschnittlich abgesonderte Giftmenge reicht theoretisch aus, um über 230 (bei voller Giftdrüse bis zu 250) erwachsene Menschen, 250.000 Mäuse oder 150.000 Ratten zu töten.
 
