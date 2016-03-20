@@ -31,5 +31,16 @@
 		},
 		"contentPath": "content/locations/location-3-melbourne.md",
 		"date": "2016-03-08T11:00:00"
+	},
+	{
+		"id": 4,
+		"name": "Golden Plains Festival",
+		"country": "Australien",
+		"coords": {
+			"lat": -37.845821,
+			"lng": 143.9300123
+		},
+		"contentPath": "content/locations/location-4-golden-plains.md",
+		"date": "2016-03-12T11:00:00"
 	}
 ]
