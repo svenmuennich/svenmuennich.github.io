@@ -38,4 +38,4 @@ Weiter nach *Warrnambool*. Das ist die Stadt, in die Tom und seine Familie urspr
 *London Arch bzw. der Rest von London Bridge*
 
 ![](https://www.dropbox.com/s/x5znh06oksnw5n3/IMG_0393.jpg?dl=1)
-*Eines meiner Lieblingsbilder im Haus von Toms Freunden. Habe leider den Namen vergessen, auf jeden Fall sind dort überall abgetrennte Gliedmaßen von Tieren zu finden.*
+*Eines meiner Lieblingsbilder im Haus von Toms Freunden. Habe leider den Namen des Bildes vergessen, auf jeden Fall sind dort überall abgetrennte Gliedmaßen von Tieren zu finden.*
