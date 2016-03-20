@@ -42,5 +42,16 @@
 		},
 		"contentPath": "content/locations/location-4-golden-plains.md",
 		"date": "2016-03-12T11:00:00"
+	},
+	{
+		"id": 5,
+		"name": "Warrnambool",
+		"country": "Australien",
+		"coords": {
+			"lat": -38.3698429,
+			"lng": 142.4617506
+		},
+		"contentPath": "content/locations/location-5-warrnambool.md",
+		"date": "2016-03-15T11:00:00"
 	}
 ]
