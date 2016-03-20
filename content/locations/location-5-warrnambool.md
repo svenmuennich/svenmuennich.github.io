@@ -31,7 +31,7 @@ Weiter nach *Warrnambool*. Das ist die Stadt, in die Tom und seine Familie urspr
 ![](https://www.dropbox.com/s/754u8hv0sm1hn4d/DSC_0236.jpg?dl=1)
 *Die zwölf Apostel II (Nr. 6 und Nr. 7)*
 
-![](https://www.dropbox.com/s/5ihxxyp421jrps1/DSC_0248.jpg?dl=13)
+![](https://www.dropbox.com/s/5ihxxyp421jrps1/DSC_0248.jpg?dl=1)
 *Die zwölf (plus eins) Apostel III (Nr. 1 bis Nr. 5 plus Nr. 13 ;-) )*
 
 ![](https://www.dropbox.com/s/arktqrhl5fqa4sc/DSC_0260.jpg?dl=1)
