@@ -1,3 +1,36 @@
+### Samstag, 26.03.2016
+
+Heute habe ich das große Programm abgespult. Das zieht sich schon wie ein Muster durch die ersten vier Wochen meiner Reise: An jedem Ort gibt es eine Tag, an dem ich so gut wie alle Sehenswürdigkeiten auf einmal abklappere. Meistens beschränkt sich das auf einen ausgedehnten Spaziergang durch den *CBD*, hier in Brisbane ist eines der Highlights jedoch etwas außerhalb gelegen: Der *Mount Coot-Tha*. Das ist sozusagen der Hausberg von Melbourne und liegt westlich des Zentrums. Obwohl er nur 287 Meter hoch ist, hat man von dort einen super Blick auf über die Stadt und bis zur Küste. Meine Gastgeberin und mein Mitbewohner haben mir beide empfohlen, auf den Berg hochzulaufen und dann eventuell auf dem Rückweg den Bus zu nehmen. Das hab ich dann auch gemacht. Allerdings sind 30 Grad und Sonnenschein eher so mittel-gute Bedingungen für solch eine "Bergwanderung". Der Weg ist teilweise schon sehr steil und laut Google Maps sind es von der Fährstation, von der ich losgelaufen bin, bis zum Aussichtspunkt sechs Kilometer. Auf dem Weg kommt man noch an den *J.C. Slaughter Falls* (ausgetrocknet) und dem *Aboriginal Art Trail* (eine Ehrenrunde von einem Kilometer und die größte Enttäuschung bisher) vorbei. Der Ausblick ist wirklich super (siehe Fotos). Und ja, für den Rückweg habe ich den Bus genommen.
+
+Der Bus hält praktischerweise direkt vor der *City Hall*, meinem nächsten Punkt auf der Tagesordnung. Von dort ging es dann über die *Queen Street Mall*, vorbei am *Treasury Casino & Hotel* zum Campus der *Queensland University of Technology*, der am Rande des *Botanischen Gartens* liegt. Der *Botanische Garten* ist wirklich cool, vor allem weil er direkt am Fluss liegt. Danach noch schnell zu den zwei Kathedralen *St Stephen* und *St John* sowie zum alten *Customs House*. Das "Feierabendbier" hatte ich mir nach fünfeinhalb Stunden und 11 Kilometern Fußweg verdient denke ich. Erfreulich und erstaunlich zugleich ist, dass ich mir diesmal – anders als in Sydney oder Melbourne – keine Blasen gelaufen habe, obwohl ich mindestens genauso viele Meter gemacht habe.
+
+![](https://www.dropbox.com/s/udc0algc8gykka3/DSC_0514.jpg?dl=1)
+*Das einzige Stück "Kunst", das ich entlang des Aboriginal Art Trail entdecken konnte*
+
+![](https://www.dropbox.com/s/5m9mwk2cc8zviyb/DSC_0530.jpg?dl=1)
+*Der Blick vom Mount Coot-Tha auf Brisbane, rechts an der Flussbiegung wohne ich*
+
+![](https://www.dropbox.com/s/tndm16r2pflufwy/DSC_0538.jpg?dl=1)
+*Brisbane City Hall*
+
+![](https://www.dropbox.com/s/jfaxdhcal3dpoob/DSC_0552.jpg?dl=1)
+*Treasury Casino & Hotel*
+
+![](https://www.dropbox.com/s/wzsdfhtxnujyrhw/DSC_0571.jpg?dl=1)
+*Botanischer Garten*
+
+![](https://www.dropbox.com/s/66juix4hbkevy3r/DSC_0597.jpg?dl=1)
+*Hausfassade, irgendwo im CBD*
+
+![](https://www.dropbox.com/s/tmurcvhwhwac7on/DSC_0603.jpg?dl=1)
+*Kathedrale St Stephen*
+
+![](https://www.dropbox.com/s/l06h7svzbd6cq0r/DSC_0615.jpg?dl=1)
+*Wohn-Klötze entlang des Brisbane River*
+
+![](https://www.dropbox.com/s/oao6nqxp2q9j4id/DSC_0631.jpg?dl=1)
+*Farbenspiele der Fenster in der Kathedrale St John*
+
 ### Freitag, 25.03.2016
 
 Nachdem ich wie geplant die ganze Woche gearbeitet habe, bin ich heute das erste Mal etwas in Richtung Innenstadt gelaufen und hab ein paar Fotos geknipst. Ich kam gerade noch rechtzeitig um die *Skyline* während des Sonnenuntergangs zu erwischen. Von dem Haus, in dem ich wohne, kann man ganz entspannt bis in die Innenstadt laufen. Das dauert vielleicht 20 Minuten. Der Weg führt einmal Quer durch das *West End*, wo ich wohne. Das ist auf jeden Fall eine der Gegenden, wo es viele Restaurants, Bars und Geschäfte gibt.
