@@ -16,6 +16,9 @@ Auf dem Rückweg bin ich dann "zufällig" an einem *Street Food Market* vorbeige
 ![](https://www.dropbox.com/s/7blcnmavk9fnjqc/DSC_0499.jpg?dl=1)
 *Kirche*
 
+![](https://www.dropbox.com/s/yt7450nv1eb66nr/IMG_0404.jpg?dl=1)
+*Nur einer von vielen lustigen Straßenname hier in Brisbane: Why not?*
+
 ### Sonntag, 20.03.2016
 
 Heute ging es dann nach Brisbane, neben Sydney und Melbourne die dritte Stadt im Bunde der *großen drei*. Das Klima hier ist subtropisch und somit ganz anders als in Sydney oder Melbourne. Im Schnitt gibt es hier pro Jahr über 300 Sonnentage und im Sommer sind die Temperaturen eigentlich immer über 25 Grad. Noch eine Besonderheit: Hier gibt es keine Sommerzeit. Das heißt, obwohl ich von Melbourne nach Nord-Ost geflogen bin, ist die Zeitverschiebung plötzlich nur noch 9 Stunden statt, wie bisher, 10 Stunden. Das soll mich aber nicht weiter beeinflussen.
