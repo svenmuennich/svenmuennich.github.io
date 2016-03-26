@@ -17,6 +17,7 @@ Heute sind wir die *Great Ocean Road* noch ein Stück weiter richtung Westen gef
 ![](https://www.dropbox.com/s/10hzik1icqfr8a4/DSC_0326.jpg?dl=1)
 *Der Hafen von Port Fairy*
 
+
 ### Dienstag, 15.03.2016
 
 Kaum zurück vom Festival, sind wir auch schon wieder unterwegs. Heute ging es nach *Warrnambool*, was etwa dreieinhalb Stunden von *Melbourne* entfernt an der Küste liegt. Der Weg dahin führt über die *Great Ocean Road*, wobei wir eine "Abkürzung" über die Autobahn genommen haben. Warum die *Great Ocean Road* heißt wie sie heißt, sollten die nachfolgenden Fotos erklären. Vor allem *Die zwölf Apostel* sind das Highlight in der Gegend. Das sind – oder besser gesagt *waren* – zwölf Felssäulen, die vom Rest der Küste getrennt im Wasser stehen. Die Wellen und das Wetter haben schon fünf davon zum Einsturz gebracht, sodass nur noch sieben übrig sind. Trotzdem stehen *Die zwölf Apostel* glaube ich in den Top 3 aller Australien Reiseführer.

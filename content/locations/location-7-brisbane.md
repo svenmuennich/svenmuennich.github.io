@@ -31,6 +31,7 @@ Der Bus hält praktischerweise direkt vor der *City Hall*, meinem nächsten Punk
 ![](https://www.dropbox.com/s/oao6nqxp2q9j4id/DSC_0631.jpg?dl=1)
 *Farbenspiele der Fenster in der Kathedrale St John*
 
+
 ### Freitag, 25.03.2016
 
 Nachdem ich wie geplant die ganze Woche gearbeitet habe, bin ich heute das erste Mal etwas in Richtung Innenstadt gelaufen und hab ein paar Fotos geknipst. Ich kam gerade noch rechtzeitig um die *Skyline* während des Sonnenuntergangs zu erwischen. Von dem Haus, in dem ich wohne, kann man ganz entspannt bis in die Innenstadt laufen. Das dauert vielleicht 20 Minuten. Der Weg führt einmal Quer durch das *West End*, wo ich wohne. Das ist auf jeden Fall eine der Gegenden, wo es viele Restaurants, Bars und Geschäfte gibt.
@@ -51,6 +52,7 @@ Auf dem Rückweg bin ich dann "zufällig" an einem *Street Food Market* vorbeige
 
 ![](https://www.dropbox.com/s/yt7450nv1eb66nr/IMG_0404.jpg?dl=1)
 *Nur einer von vielen lustigen Straßenname hier in Brisbane: Why not?*
+
 
 ### Sonntag, 20.03.2016
 

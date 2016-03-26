@@ -13,6 +13,7 @@ Vielleicht noch eine kurze Geschichte zu *Somhoy Blues*: Das ist eine Band aus *
 ![](https://www.dropbox.com/s/6yoxcymngvp5ayy/IMG_0388.jpg?dl=1)
 *"Eddy Current Suppression Ring" (so heißt die Band): Nicht meine Musik, aber auf jeden Fall eine super Show, inklusive Stagediving*
 
+
 ### Samstag, 12.03.2016
 
 Heute ging es dann endlich los zum *Golden Plains* Festival nach *Meredith*. Die Fahrt von Melbourne dorthin dauert ca. 2 Stunden. Da wir mit einer Gruppe von zwölf Leuten unterwegs waren, waren wir etwas spät dran, was den Vorteil hatte, dass es keine Schlange mehr am Eingang gab. Haben trotzdem noch einen guten Zeltplatz in *Bluegums* bekommen.
