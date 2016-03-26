@@ -26,8 +26,8 @@
 		"name": "Melbourne",
 		"country": "Australien",
 		"coords": {
-			"lat": -37.8007513,
-			"lng": 144.959593
+			"lat": -37.8567591,
+			"lng": 145.0209672
 		},
 		"contentPath": "content/locations/location-3-melbourne.md",
 		"date": "2016-03-08T11:00:00"
@@ -53,5 +53,16 @@
 		},
 		"contentPath": "content/locations/location-5-warrnambool.md",
 		"date": "2016-03-15T11:00:00"
+	},
+	{
+		"id": 6,
+		"name": "Melbourne",
+		"country": "Australien",
+		"coords": {
+			"lat": -37.8007513,
+			"lng": 144.959593
+		},
+		"contentPath": "content/locations/location-6-melbourne.md",
+		"date": "2016-03-19T11:00:00"
 	}
 ]
