@@ -1,3 +1,26 @@
+### Sonntag, 27.03.2016
+
+Lange Nacht, wenig Schlaf und ein regnerischer Tag. Das klingt nach dem perfekten Rezept für einen ausgedehnten Besuch im Museum. Ich hatte vorab schon gelesen, dass Brisbane einige gute Museen und Galerien hat, aber die Ausstellung *
+The 8th Asia Pacific Triennial of Comtemporary Art (APT8)* hat mich wirklich beeindruckt. Zum einen weil sie so groß ist, dass sie sich über zwei Galerien erstreckt (*Gallery of Modern Art* und *Queensland Art Galery*) und zum anderen, weil es dort wirklich beeindruckende Werke zu sehen gibt (unten findet ihr ein paar Fotos). Oft ist zeitgenössische Kunst ja wirklich, sagen wir, *anders*. Aber in dieser Austellung bedeutet "zeitgenössisch" vor allem eine zeitgenössische Interpretation von traditionellen Kunstformen aus den asiatischen und pazifischen Kulturen.
+
+Das Highlight war zweifelsohne eine *mixed-media* Installation namens *Ils vous regardent (They look at you)* von *Nicolas Molé*. *Mixed-media* deshalb, weil in schwarz-weiß ein Regenwald (schwarz) an die Wände (weiß) gemalt ist und darauf dann (teiweise bunte) Animationen projeziert werden. Ist schwer zu erklären, deshalb schaut euch am besten [dieses Video](https://vimeo.com/147385430) an, auch wenn das nicht wirklich die Stimmung transportieren kann, die in dem Raum geherrscht hat. Wirklich beeindruckend.
+
+![](https://www.dropbox.com/s/2oohc9mpv4m9rpf/IMG_0413.jpg?dl=1)
+*APT8*
+
+![](https://www.dropbox.com/s/fftmd5t9wztp70d/IMG_0414.jpg?dl=1)
+*APT8 II*
+
+![](https://www.dropbox.com/s/q3x4w911px9olcf/IMG_0416.jpg?dl=1)
+*APT8 III*
+
+![](https://www.dropbox.com/s/xdsw7gr7l4f4cpf/IMG_0433.jpg?dl=1)
+*APT8 IV: Ils vous regardent (They look at you) von Nicolas Molé*
+
+![](https://www.dropbox.com/s/nm897rfh75e1zvi/IMG_0437.jpg?dl=1)
+*APT8 V: Kein echter Elefant, sondern eine handbemalte Nachbildung aus Glasfaser*
+
+
 ### Samstag, 26.03.2016
 
 #### Update von Sonntag
