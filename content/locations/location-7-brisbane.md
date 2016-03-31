@@ -1,3 +1,14 @@
+### Dienstag, 29.03.2016
+
+Heute war mein letzter Tag in Brisbane und den werde ich so schnell nicht vergessen. Nicht unbedingt, weil ich tagsüber mit den Mädels (siehe Eintrag *Samstag, 26.03.2016*) an der *Brisbane Lagoon* (das ist ein Pool mit Strand, direkt am Ufer des *Brisbane River* in *Southbank*) das perfekte Wetter genossen habe, sondern weil ich der Meinung war, doch noch unbedingt einmal das australische Gesundheitssystem ausprobieren zu müssen.
+
+Zunächst einmal vorab: Mir geht es (wieder) gut. Alles halb so schlimm. Die Langzeitschäden werden sich wohl auf zwei kleine Naben beschränken. Also, was war passiert?
+
+Eigentlich wollte ich abends noch rüber zu den Mädels gehen und ein paar Abschieds-Bierchen trinken. Doch ich hab mich derart ungeschickt in meinem Bad bewegt, dass meine (randvolle) Parfümflasche aus gut 1,5 Metern Höhe auf den gefliesten Boden gekracht ist. Dabei haben mich zwei umherfliegende Splitter am linken Oberschenkel erwischt und mehr oder weniger tiefe Schnittwunden zugefügt. Es hat sofort recht stark geblutet, weshalb ich erstmal Timo um medizinschen Rat gefragt habe (danke noch einmal, mein Junge). Er meinte, es müsse wahrscheinlich genäht werden, allerdings hatte ich nicht wirklich Lust, meinen letzten Abend in der Notaufnahme eines Krankenhauses zu verbringen. Stattdessen hat mir Toms Schwester Tara – von Beruf Ärztin hier in Australien – die Nummer eines *After Hour Doctor* geben. Das sind Ärzte, die abends/nachts und am Wochenende Hausbesuche machen (Tara arbeitet derzeit selbst als *After Hour Doctor*, allerdings in *Cairns*). Immerhin konnte ich so zuhause warten und musste nicht in irgendeinem Krankenhaus rumhängen.
+
+Als ich den Mädels absagen wollte, haben sie stattdessen die Abschiedsparty einfach zu mir verlegt und netterweise sogar Abendessen mitgebracht. In Gesellschaft ging die Wartezeit von letztendlich gut view Stunden doch um einiges schneller rum. Die Schnittwunden wurden dann fix zugeklebt und das Ganze hat nicht länger als 15 Minuten gedauert. Wie gesagt: Alles halb so schlimm. Das Schlimmste war vielleicht noch der Geruch – oder sagen wir eher der *Gestank* – in meinem Zimmer, der den Kakerlaken besser gefallen zu haben scheint als mir.
+
+
 ### Sonntag, 27.03.2016
 
 Lange Nacht, wenig Schlaf und ein regnerischer Tag. Das klingt nach dem perfekten Rezept für einen ausgedehnten Besuch im Museum. Ich hatte vorab schon gelesen, dass Brisbane einige gute Museen und Galerien hat, aber die Ausstellung *
