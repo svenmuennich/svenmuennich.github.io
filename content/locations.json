@@ -75,5 +75,16 @@
 		},
 		"contentPath": "content/locations/location-7-brisbane.md",
 		"date": "2016-03-20T11:00:00"
+	},
+	{
+		"id": 8,
+		"name": "Papamoa",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -37.726534,
+			"lng": 176.2918571
+		},
+		"contentPath": "content/locations/location-8-papamoa.md",
+		"date": "2016-03-30T11:00:00"
 	}
 ]
