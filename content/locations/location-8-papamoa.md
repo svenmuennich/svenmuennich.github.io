@@ -1,3 +1,33 @@
+### Donnerstag, 31.03.2016
+
+Heute haben wir erst einmal etwas die Gegend um Papamoa erkundet. Nicht, dass Tom oder Ana das nötig hätten, immerhin ist Tom hier aufgewachsen. Es ist jedoch so, dass einige *Klassiker* der Nordinsel von hier locker mit dem Auto zu erreichen sind. Für den leichten Einstieg bzw. Aufstieg ging es für Tom und mich direkt mal auf den 232 Meter hohen *Mount Maunganui*. Das ist ein erlöschener Vulkan, der das (zwischenzeitliche) Ende es ewig langen Strandes der *Bay of PLenty* bildet. Wie ihr auf den Fotos sehen könnt, hat man von der Spitze eine super Blick über die *Bay of Plenty*. Der Name *Bay of Plenty* (Bucht des Überflusses) stammt übrigens (mal wieder) von *Captain Cook* und beschreibt den natürlichen *Überfluss*, der unter anderem durch die sehr fruchtbaren Böden entsteht.
+
+Da das Wetter recht klar war, konnte man sogar *White Island* am Horizont erkennen. Das ist die letzte, noch aktive Vulkaninsel Neuseelands. Sie liegt knapp 50 Kilometer vor der Küste, sodass man meistens nur die Rauch- und Aschewolke des Vulkans erkennen kann (siehe Fotos).
+
+Abends haben wir dann noch einen kleinen Strandspaziergang gemacht, was einfach Teil der täglichen Routine von Tom und Ana (und Effie) ist. Kein Wunder, wenn man nur über die Straße und 50 Meter durch die Dünen gehen muss, um den Strand zu erreichen.
+
+![](https://www.dropbox.com/s/t0nv3m0c255v66h/DSC_0654.jpg?dl=1)
+*Der Mount Maunganui vom Strand aus*
+
+![](https://www.dropbox.com/s/j2niw90x82git32/DSC_0662.jpg?dl=1)
+*Blick von der Rückseite des Mount Maunganui in Richtung Nord-Osten*
+
+![](https://www.dropbox.com/s/tl23nzbrwd1jw0q/DSC_0677.jpg?dl=1)
+*Da mehr Fotos von mir selbst gewünscht wurden: Ich auf der "Spitze" des Mount Maunganui, hinter mir die Bay of Plenty, rechts die Papamoa Hills*
+
+![](https://www.dropbox.com/s/s5t6a0k65aravzq/DSC_0680.jpg?dl=1)
+*Blick auf den Strand von Mount Maunganui*
+
+![](https://www.dropbox.com/s/clkpo8hfstjvr20/DSC_0685.jpg?dl=1)
+*Am Horizont: White Island inkl. Rauch- bzw. Aschewolke*
+
+![](https://www.dropbox.com/s/atgicw7xft0rimf/DSC_0718.jpg?dl=1)
+*Der Mount Maunganui aus der Ferne, fotografiert während unseres abendlichen Strandspaziergangs*
+
+![](https://www.dropbox.com/s/cyhlrmfduggopn0/DSC_0729.jpg?dl=1)
+*Tom und Ana als Schattengestalten*
+
+
 ### Mittwoch, 30.03.2016
 
 [**tl;dr**](https://en.wikipedia.org/wiki/Wikipedia:Too_long;_didn%27t_read): Heute gibt es noch keine hübschen Fotos aus Neuseeland, dafür einen ausführlichen Bericht über die Odyssee/Reise von Brisbane nach Tauranga. Wer hier also nur wegen der Fotos vorbeischaut, sollte es in ein paar Tagen noch einmal versuchen oder sich die vorherigen Stationen meiner Reise anschauen.
