@@ -1,8 +1,8 @@
 ### Donnerstag, 31.03.2016
 
-Heute haben wir erst einmal etwas die Gegend um Papamoa erkundet. Nicht, dass Tom oder Ana das nötig hätten, immerhin ist Tom hier aufgewachsen. Es ist jedoch so, dass einige *Klassiker* der Nordinsel von hier locker mit dem Auto zu erreichen sind. Für den leichten Einstieg bzw. Aufstieg ging es für Tom und mich direkt mal auf den 232 Meter hohen *Mount Maunganui*. Das ist ein erlöschener Vulkan, der das (zwischenzeitliche) Ende es ewig langen Strandes der *Bay of PLenty* bildet. Wie ihr auf den Fotos sehen könnt, hat man von der Spitze eine super Blick über die *Bay of Plenty*. Der Name *Bay of Plenty* (Bucht des Überflusses) stammt übrigens (mal wieder) von *Captain Cook* und beschreibt den natürlichen *Überfluss*, der unter anderem durch die sehr fruchtbaren Böden entsteht.
+Heute haben wir erst einmal etwas die Gegend um Papamoa erkundet. Nicht, dass Tom oder Ana das nötig hätten, immerhin ist Tom hier aufgewachsen. Es ist jedoch so, dass einige *Klassiker* der Nordinsel von hier locker mit dem Auto zu erreichen sind. Für den leichten Einstieg bzw. Aufstieg ging es für Tom und mich direkt mal auf den 232 Meter hohen *Mount Maunganui*. Das ist ein erlöschener Vulkan, der das (zwischenzeitliche) Ende es ewig langen Strandes der *Bay of Plenty* bildet. Wie ihr auf den Fotos sehen könnt, hat man von der Spitze eine super Blick über die *Bay of Plenty*. Der Name *Bay of Plenty* (auf Deutsch: "Bucht des Überflusses") stammt übrigens (mal wieder) von *Captain Cook* und beschreibt den natürlichen *Überfluss*, der unter anderem durch die sehr fruchtbaren Böden entsteht. Nicht zuletzt ist *Te Puke*, der Nachbarort von Papamoa, die selbsternannte Kiwi-Hauptstadt der Welt.
 
-Da das Wetter recht klar war, konnte man sogar *White Island* am Horizont erkennen. Das ist die letzte, noch aktive Vulkaninsel Neuseelands. Sie liegt knapp 50 Kilometer vor der Küste, sodass man meistens nur die Rauch- und Aschewolke des Vulkans erkennen kann (siehe Fotos).
+Da das Wetter recht klar war, konnte man sogar *White Island* am Horizont erkennen. Das ist die letzte, noch aktive Vulkaninsel Neuseelands. Sie liegt knapp 50 Kilometer vor der Küste (vom Mount Maunganui sind es eher so 70 Kilometer), sodass man meistens nur die Rauch- und Aschewolke des Vulkans erkennen kann (siehe Fotos).
 
 Abends haben wir dann noch einen kleinen Strandspaziergang gemacht, was einfach Teil der täglichen Routine von Tom und Ana (und Effie) ist. Kein Wunder, wenn man nur über die Straße und 50 Meter durch die Dünen gehen muss, um den Strand zu erreichen.
 
@@ -10,7 +10,7 @@ Abends haben wir dann noch einen kleinen Strandspaziergang gemacht, was einfach 
 *Der Mount Maunganui vom Strand aus*
 
 ![](https://www.dropbox.com/s/j2niw90x82git32/DSC_0662.jpg?dl=1)
-*Blick von der Rückseite des Mount Maunganui in Richtung Nord-Osten*
+*Blick von der Rückseite des Mount Maunganui in Richtung Nord-Westen*
 
 ![](https://www.dropbox.com/s/tl23nzbrwd1jw0q/DSC_0677.jpg?dl=1)
 *Da mehr Fotos von mir selbst gewünscht wurden: Ich auf der "Spitze" des Mount Maunganui, hinter mir die Bay of Plenty, rechts die Papamoa Hills*
