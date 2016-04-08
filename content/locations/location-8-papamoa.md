@@ -1,3 +1,17 @@
+### Sonntag, 02.04.2016
+
+Übers Wochenende haben wir Toms Familie besucht, die hier ganz in der Nähe in *Te Puke* wohnt (ihr erinnert euch vielleicht, dass Te Puke die Welt-Kiwi-Haupstadt ist). Nachdem wir gestern bei Toms Oma zum Abendessen waren, sind wir heute auf die Farm von Toms Onkel und Tante gefahren. Das ist keine Kiwi-Plantage, sondern eine Rinder-Farm. Oder wie Tom gerne sagt: "Look Sven, there are your hamburgers." Auf dem Weg dorthin fährt man allerdings an unzähligen Kiwi- und Avocado-Plantagen vorbei. Vom einen auf den anderen Moment hören die Plantagen links und rechts jedoch auf, wegen der Höhe und der dadurch kälteren Temperaturen. Weiter oben in den Bergen findet man dann eigentlich nur noch Rinder-Farmen.
+
+Nach einem leckeren Mittagessen haben Tom, seine Cousins und ich uns dann nützlich gemacht und eine paar Bullen-Herden von Weide zu Weide getrieben. Moderne Cowboys wie wir brauchen dazu keine Pferde, sondern es reichen Motocross-Maschinen, Quad-Bikes und ähnliches. Blair (Toms Cousin), Tom und ich waren in einem *Polaris*, einer Mischung aus Golfauto und 4x4-Truck, unterwegs. Das Teil geht ab wie Schmidts Katze und hat selbst mit deaktiviertem Allradantrieb keine Probleme, extrem steile Hänge hochzufahren.
+
+Eine kleine Geschichte noch zum Polaris, bzw. seinem Vorgänger: Vor zwei Wochen ist einer der Schäferhunde in den, an einer Böschung geparkten, Polaris gesprungen und hat dabei den Schalthebel (hat ein Automatikgetriebe) von *P* nach *N* gedrückt. Das Gefälle hat ausgereicht, sodass er direkt losgerollt, samt Hund die Böschung runtergerauscht und auf einen Feldweg gekracht ist. Dabei ist eine der Radaufhängungen gebrochen. Der Hund hat sich aber nicht verletzt.
+
+![](https://www.dropbox.com/s/g6zhm271n7qj2wi/IMG_0447.jpg?dl=1)
+*"Bull chasing" im Polaris*
+
+![](https://www.dropbox.com/s/s7457znreg5ekcr/IMG_0462.jpg?dl=1)
+*Blair und ich unterwegs im Polaris, mit Frontantrieb den Hang hoch*
+
 ### Donnerstag, 31.03.2016
 
 Heute haben wir erst einmal etwas die Gegend um Papamoa erkundet. Nicht, dass Tom oder Ana das nötig hätten, immerhin ist Tom hier aufgewachsen. Es ist jedoch so, dass einige *Klassiker* der Nordinsel von hier locker mit dem Auto zu erreichen sind. Für den leichten Einstieg bzw. Aufstieg ging es für Tom und mich direkt mal auf den 232 Meter hohen *Mount Maunganui*. Das ist ein erlöschener Vulkan, der das (zwischenzeitliche) Ende es ewig langen Strandes der *Bay of Plenty* bildet. Wie ihr auf den Fotos sehen könnt, hat man von der Spitze eine super Blick über die *Bay of Plenty*. Der Name *Bay of Plenty* (auf Deutsch: "Bucht des Überflusses") stammt übrigens (mal wieder) von *Captain Cook* und beschreibt den natürlichen *Überfluss*, der unter anderem durch die sehr fruchtbaren Böden entsteht. Nicht zuletzt ist *Te Puke*, der Nachbarort von Papamoa, die selbsternannte Kiwi-Hauptstadt der Welt.
