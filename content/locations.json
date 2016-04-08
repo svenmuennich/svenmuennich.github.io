@@ -97,5 +97,16 @@
 		},
 		"contentPath": "content/locations/location-9-waitomo.md",
 		"date": "2016-04-04T11:00:00"
+	},
+	{
+		"id": 10,
+		"name": "Papamoa",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -37.726534,
+			"lng": 176.31
+		},
+		"contentPath": "content/locations/location-10-papamoa.md",
+		"date": "2016-04-05T11:00:00"
 	}
 ]
