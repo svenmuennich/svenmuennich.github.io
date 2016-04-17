@@ -130,5 +130,16 @@
 		},
 		"contentPath": "content/locations/location-12-lake-taupo.md",
 		"date": "2016-04-10T11:00:00"
+	},
+	{
+		"id": 13,
+		"name": "Tongariro Nationalpark",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -39.1358532,
+			"lng": 175.6352636
+		},
+		"contentPath": "content/locations/location-13-tongariro-nationalpark.md",
+		"date": "2016-04-11T11:00:00"
 	}
 ]
