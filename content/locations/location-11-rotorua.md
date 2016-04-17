@@ -1,6 +1,6 @@
 ### Mittwoch, 06.04.2016
 
-Heute sind wir alle zusammen nach *Rotorua* gefahren, was etwa 45 Mintuen mit dem Auto entfernt ist. Rotorua ist einer der ältesten Touristen-Orte in Neuseeland, da schon Mitte des 19. Jahrhunderts europäische Siedler hier herkamen, um sich die geothermischen Quellen anzusehen oder auch darin zu baden. Außerdem gab es hier die größten Sinter-Terrassen der Welt. Sie wurden allerdings bei Ausbruch des Mount Tarawera 1886 zerstört. Trotzdem gibt es noch einiges zu sehen, wie zum Beispiel den *Redwood Forest*, durch den wir eine kleine Wanderung gemacht haben.
+Heute sind wir alle zusammen nach *Rotorua* gefahren, was etwa 45 Minuten mit dem Auto entfernt ist. Rotorua ist einer der ältesten Touristen-Orte in Neuseeland, da schon Mitte des 19. Jahrhunderts europäische Siedler hier herkamen, um sich die geothermischen Quellen anzusehen oder auch darin zu baden. Außerdem gab es hier die größten Sinter-Terrassen der Welt. Sie wurden allerdings beim Ausbruch des Mount Tarawera 1886 zerstört. Trotzdem gibt es noch Einiges zu sehen, wie zum Beispiel den *Redwood Forest*, durch den wir eine kleine Wanderung gemacht haben.
 
 Durch die nachwievor anhaltende vulkanische Aktivität, sind in der Region viele Seen in ehemaligen Vulkan-Kraten enstanden. An einem davon, dem *Blue Lake*, haben wir eine kleine Mittagspause gemacht, und dabei einem Wettkampf im traditionellen Ruderbootrennen der Maori zugeschaut, was hier zufällig stattgefunden hat.
 
