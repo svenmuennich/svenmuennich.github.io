@@ -119,5 +119,16 @@
 		},
 		"contentPath": "content/locations/location-11-rotorua.md",
 		"date": "2016-04-06T11:00:00"
+	},
+	{
+		"id": 12,
+		"name": "Lake Taupo",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -38.6821575,
+			"lng": 176.07
+		},
+		"contentPath": "content/locations/location-12-lake-taupo.md",
+		"date": "2016-04-10T11:00:00"
 	}
 ]
