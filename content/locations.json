@@ -108,5 +108,16 @@
 		},
 		"contentPath": "content/locations/location-10-papamoa.md",
 		"date": "2016-04-05T11:00:00"
+	},
+	{
+		"id": 11,
+		"name": "Rotorua",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -38.134,
+			"lng": 176.25
+		},
+		"contentPath": "content/locations/location-11-rotorua.md",
+		"date": "2016-04-06T11:00:00"
 	}
 ]
