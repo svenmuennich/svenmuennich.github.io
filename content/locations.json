@@ -141,5 +141,16 @@
 		},
 		"contentPath": "content/locations/location-13-tongariro-nationalpark.md",
 		"date": "2016-04-11T11:00:00"
+	},
+	{
+		"id": 14,
+		"name": "Wellington",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -41.2891872,
+			"lng": 174.775
+		},
+		"contentPath": "content/locations/location-14-wellington.md",
+		"date": "2016-04-14T11:00:00"
 	}
 ]
