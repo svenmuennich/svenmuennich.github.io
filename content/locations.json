@@ -152,5 +152,16 @@
 		},
 		"contentPath": "content/locations/location-14-wellington.md",
 		"date": "2016-04-14T11:00:00"
+	},
+	{
+		"id": 15,
+		"name": "Abel Tasman Nationalpark",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -40.9040824,
+			"lng": 172.96
+		},
+		"contentPath": "content/locations/location-15-abel-tasman.md",
+		"date": "2016-04-15T11:00:00"
 	}
 ]
