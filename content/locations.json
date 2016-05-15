@@ -163,5 +163,16 @@
 		},
 		"contentPath": "content/locations/location-15-abel-tasman.md",
 		"date": "2016-04-15T11:00:00"
+	},
+	{
+		"id": 16,
+		"name": "Kaikoura",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -42.4031334,
+			"lng": 173.6809794
+		},
+		"contentPath": "content/locations/location-16-kaikoura.md",
+		"date": "2016-04-17T11:00:00"
 	}
 ]
