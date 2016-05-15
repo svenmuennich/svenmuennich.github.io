@@ -174,5 +174,16 @@
 		},
 		"contentPath": "content/locations/location-16-kaikoura.md",
 		"date": "2016-04-17T11:00:00"
+	},
+	{
+		"id": 17,
+		"name": "Mount Somers",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -43.697,
+			"lng": 171.38
+		},
+		"contentPath": "content/locations/location-17-mount-somers.md",
+		"date": "2016-04-15T11:00:00"
 	}
 ]
