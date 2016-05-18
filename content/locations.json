@@ -196,5 +196,16 @@
 		},
 		"contentPath": "content/locations/location-18-akaroa.md",
 		"date": "2016-04-21T11:00:00"
+	},
+	{
+		"id": 19,
+		"name": "Cardrona",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -44.8825,
+			"lng": 169.004
+		},
+		"contentPath": "content/locations/location-19-cardrona.md",
+		"date": "2016-04-22T11:00:00"
 	}
 ]
