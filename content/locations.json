@@ -185,5 +185,16 @@
 		},
 		"contentPath": "content/locations/location-17-mount-somers.md",
 		"date": "2016-04-19T11:00:00"
+	},
+	{
+		"id": 18,
+		"name": "Akaroa",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -43.7951506,
+			"lng": 172.9656605
+		},
+		"contentPath": "content/locations/location-18-akaroa.md",
+		"date": "2016-04-21T11:00:00"
 	}
 ]
