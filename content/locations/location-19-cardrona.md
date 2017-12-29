@@ -1,3 +1,31 @@
+### Sonntag, 24.05.2016
+
+Endlich Action! Ich habe Ana und mich fürs *Jet Boat* Fahren angemeldet (Tom hat es schonmal gemacht und einer muss ja auch auf Effie aufpassen). Bevor es allerdings losging, haben wir an dem Bungee Jumping Spot überhaupt noch Halt gemacht. Hier wurde Bungee Jumping so zu sagen erfunden, da es der erste kommerzielle Bunge Jump der Welt war. Man springt dabei von einer alten Brücke, die über den *Kawarau River* führt. Als Zuschauer hat man hier auf jeden Fall die besten Plätze. Ein Sprung kostet gut 100 Euro. Wer sich nicht traut, bekommt keine Rückerstattung (und davon haben wir einige gesehen). Und nein, ich habe es erst gar nicht versucht.
+
+Danach ging es dann zum *Shotover River*. Hier gibt es die angeblich beste *Jet Boat* Tour der Welt. Sie bieten das hier schon seit über 50 Jahren an und es haben z.B. auch schon Prinz William und Prinzessin Kate hier im Boot gesessen. Erst zur Theorie: Ein *Jet Boat* hat keine Schraube, sondern saugt vorne Wasser an, was dann in Turbinen komprimiert wird. An der Rückseite schießt das Wasser dann als Strahl heraus und beschleunigt das Boot auf über 80 km/h. Dadurch reichen auch schon 10 Zentimeter Wasser unter dem Kiel (was allerdings nicht heißt, dass ein Boot sich nicht auch mal auf einer Schotterbank fest fährt). Nun zu Praxis: Die Fahrt einfach nur geil! Die Piloten steuern das Boot teilweise auf unter einen halben Meter an die Felsen heran (siehe Fotos der Schlucht). Viel mehr Platz ist auch manchmal gar nicht. Das Gefühl ist schwer zu beschreiben, aber vielleicht geben die Fotos und [das Video hier](https://www.youtube.com/watch?v=AzhAMscTxyc) einen ganz guten Eindruck. Ich kann das wirklich nur weiterempfehlen.
+
+![](https://www.dropbox.com/s/6o771zay3no999m/DSC_2208.JPG?dl=1)
+*Dir alte Brücke über den Kawarau River*
+
+![](https://www.dropbox.com/s/af0oe49bpelf0r2/DSC_2212.JPG?dl=1)
+*Anfänger (mit den Füßen voran)*
+
+![](https://www.dropbox.com/s/avoi2h7fmg11emr/DSC_2214.JPG?dl=1)
+*Die zwei Jungs im Boot sammeln einen nach dem Sprung ein, immerhin baumelt man danach in ca. 3 Metern Höhe mitten über dem Fluss*
+
+![](https://www.dropbox.com/s/oln58diyr81bqfu/DSC_2230.JPG?dl=1)
+*Profi (mit dem Kopf voran)*
+
+![](https://www.dropbox.com/s/jtvr6ku9sbe3cod/DSC_2235.JPG?dl=1)
+*Die Schlucht am Shotover, wo sich die im Jet Boote durchzwängen*
+
+![]()
+*Ana und ich im Jet Boat (Foto Credits: Tom)*
+
+![]()
+*Ana und ich im Jet Boat II (Foto Credits: Tom)*
+
+
 ### Samstag, 23.04.2016
 
 *Cardrona* selbst hat nicht viel zu bieten. Es ist wie eigentlich alle Orte hier oben in der Gegend ein Überbleibsel des Goldrausches im 19. Jahrhundert. Heutzutage gibt es hier, wie auch in den benachbarten Städtchen *Queenstown* und *Wanaka*, ein Skigebiet. Dadurch, dass alle drei Skigebiete so nahe bei einander liegen, kommen hier sowohl Neuseeländer, als auch Australiert zum Skiurlaub hin. Schnee fällt allerdings eher erst ab Mai, sodass wir aus dem reichhaltigen Alternativangebot wählen mussten. Wie der Zufall es wollte, findet gerade das *Arrowtown Autumn Festival* statt, dem wir heute einen Besuch abgestattet haben. Das Fest selbst war langweilig, allerdings ist der Ort einfach super fotogen. Gerade jetzt im Herbst mit dem bunten Laub ist die Kulisse einfach nur großartig.

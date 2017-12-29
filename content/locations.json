@@ -207,5 +207,104 @@
 		},
 		"contentPath": "content/locations/location-19-cardrona.md",
 		"date": "2016-04-22T11:00:00"
+	},
+	{
+		"id": 20,
+		"name": "Makarora",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -44.2313322,
+			"lng": 169.220549
+		},
+		"contentPath": "content/locations/location-20-makarora.md",
+		"date": "2016-04-25T11:00:00"
+	},
+	{
+		"id": 21,
+		"name": "Hokitika",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -42.7173975,
+			"lng": 170.9665371
+		},
+		"contentPath": "content/locations/location-21-hokitika.md",
+		"date": "2016-04-29T11:00:00"
+	},
+	{
+		"id": 22,
+		"name": "Rarangi",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -41.3938594,
+			"lng": 174.0467832
+		},
+		"contentPath": "content/locations/location-22-rarangi.md",
+		"date": "2016-05-02T11:00:00"
+	},
+	{
+		"id": 23,
+		"name": "Waituna West",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -40.0399878,
+			"lng": 175.6392035
+		},
+		"contentPath": "content/locations/location-23-waituna-west.md",
+		"date": "2016-05-04T11:00:00"
+	},
+	{
+		"id": 24,
+		"name": "Papamoa",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -37.726534,
+			"lng": 176.33
+		},
+		"contentPath": "content/locations/location-24-papamoa.md",
+		"date": "2016-05-06T11:00:00"
+	},
+	{
+		"id": 25,
+		"name": "Wellington",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -41.2891872,
+			"lng": 174.79
+		},
+		"contentPath": "content/locations/location-25-wellington.md",
+		"date": "2016-05-10T11:00:00"
+	},
+	{
+		"id": 26,
+		"name": "Auckland",
+		"country": "Neuseeland",
+		"coords": {
+			"lat": -36.856,
+			"lng": 174.7631
+		},
+		"contentPath": "content/locations/location-26-auckland.md",
+		"date": "2016-05-10T11:00:00"
+	},
+	{
+		"id": 27,
+		"name": "Singapur",
+		"country": "Singapur",
+		"coords": {
+			"lat": 1.3430916,
+			"lng": 103.8711603
+		},
+		"contentPath": "content/locations/location-27-singapur.md",
+		"date": "2016-05-11T11:00:00"
+	},
+	{
+		"id": 28,
+		"name": "Teheran",
+		"country": "Iran",
+		"coords": {
+			"lat": 35.68,
+			"lng": 51.39
+		},
+		"contentPath": "content/locations/location-28-teheran.md",
+		"date": "2016-05-18T11:00:00"
 	}
 ]
